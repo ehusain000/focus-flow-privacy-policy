@@ -2,7 +2,7 @@
 
 **Effective Date:** [2025]  
 
-Focus Flow ("we," "our," or "us") is committed to protecting your privacy. This Privacy Policy explains how we collect, use, and share information when you use our app, Focus Flow.
+Focus Flow is committed to protecting your privacy. This Privacy Policy explains how we collect, use, and share information when you use our app, Focus Flow.
 
 ---
 
